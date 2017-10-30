@@ -3,4 +3,4 @@
 
 Guten morgen zusammen!
 
-Auch so.
+Auch so. Wunderbar!
